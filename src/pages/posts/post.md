@@ -22,5 +22,3 @@ Y está más que claro el objetivo del anime: entretener. Porque ese es el objet
 Si sos de las personas que te gustan los detalles, si te genera curiosidad ese “algo más” que tiene el anime que más te gusto ver y que te interesa investigar más a fondo, este es tu lugar. Espero poder desglosar una de tus series favoritas y que puedas ver todo ese entramado tan grande que el autor tuvo que tener en cuenta para poder atraparte de la forma en la que lo hizo. Vamos a hacer el intento de que no se nos escape ni un pequeño detalle. Y si se me escapa, te invito a que hagas lo mismo que yo y te aventures en investigar arduamente sobre eso que todavía no pudimos ver.
 
 Esto es “Convergencia”. Yo soy Bernabé. Espero que disfrutes tanto como yo el poder detallar hasta lo más mínimo de lo que más nos gusta.
-
-UWU
